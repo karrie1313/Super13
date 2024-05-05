@@ -1,1 +1,1 @@
-# Super13
+1258409198976675840,@themrnapier @KatieHill4CA @Karrie1313 Democrat behavior is always up there on the super high road. Did ya’ll cough… https://t.co/5XpD2t09uU,2020-05-07 14:51:47,"humor, fitness and books. Nurse 🇺🇸 ~ i am no longer participating in the pandemic lockdown #openamericanow"
